@@ -1,2 +1,2 @@
 # roblox-free-executor
-join https://discord.gg/kSuzr2Gb for free executor "you need python"
+make sure to join my discord https://discord.gg/kSuzr2Gb
